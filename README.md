@@ -1,2 +1,2 @@
 # AraStance
-Data will be uploaded soon
+The data will be posted here no later than June 18th, 2021.
